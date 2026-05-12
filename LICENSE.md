@@ -1,4 +1,4 @@
-# 
+# secure Strong for macOS Workflow | sync-with-wearables + community-challenges offers the most advanced Strong for macOS workflow, with sync-with-wearables and
 
 
 
